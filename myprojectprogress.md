@@ -1,0 +1,1 @@
+I really don't have a preference but if I could choose I'd like to work on projects focussing on web/app development and its something that has interested me in the past. As for the type of repo, I'd like to use a Common Repo as its best for small groups which is a personal preference of mine.
